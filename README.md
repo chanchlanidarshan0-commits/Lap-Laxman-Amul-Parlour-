@@ -1,2 +1,2 @@
-# Lap-Laxman-Amul-Parlour-
+# LAP
 Laxman Amul Parlour 
